@@ -1,0 +1,1 @@
+I run segmented B2B email campaigns and targeted online promotions to help business owners and professionals discover tools that improve productivity and security. 1Password is a trusted brand with a strong reputation, making it a valuable addition to the solutions I recommend to my audience.
